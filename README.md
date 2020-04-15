@@ -24,7 +24,11 @@ To join the Team Equipe GOC, configure your Folding@Home client with our Team ID
 
 
 
+# meme's
+![armwrestle meme about antivirus software](https://pbs.twimg.com/media/EVqQFEnWsAACR34?format=jpg&name=900x900)
 
+![top gun high five](https://media.giphy.com/media/Zj4XpvDoLQUve/source.gif)
 
+![star ship troopers working together](https://media.giphy.com/media/YYfEjWVqZ6NDG/source.gif)
 
 ![Unlce Sam asking if you're folding](https://i.imgur.com/4cdVyaY.png)
